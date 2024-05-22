@@ -102,3 +102,34 @@ And if you see the poor “fuqara” wandering around shrines, it is not as you 
 That's it.
 
 Bismillah.
+
+
+
+
+&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&
+
+
+**Question**
+
+I heard from one of the disciples that you said the Mahdi is alive in our time and that he is young. Does that mean we will face Dajjal “the Antichrist” in our lifetime? 
+How should we prepare for this confrontation with dajjal ?
+Should we go to specific places that will protect us from this trial?
+
+**Answer**
+
+I said that he is alive, but I did not say that he is young. I didn't specify his age, understood? Regarding his birth, I said that he is born now if we calculate the time specified by Prophet Mohammed, peace be upon him, in the hadiths, it indicates that our current time is when our Master the Mahdi, peace be upon him, has emerged into the sensory world “a'alam al-hiss”. Whether he is a year old, two years old, a month or two months old, or 20 or 30 years old, only God knows. This is what I said.
+
+As for whether we will live until the time of dajjal or not, Allah knows, and lifespans are in Allah hands. I don't even know about myself whether I will see tomorrow or die; only Allah knows the appointed time of our death. Understood? This is one point.
+
+If God prolongs a person’s life until, for example, they reach 80 or 90 years old, then we can reasonably say that perhaps they will face this confrontation with dajjal , or maybe one of their children or grandchildren will. Because if we say now, not much time is left, this is one point.
+
+How do we deal with the dajjal ?
+The Prophet, peace be upon him, informed us to fortify ourselves with Surah Al-Kahf weekly and to memorize the first 10 verses. Whenever we suspect someone, whether they are the dajjal himself or using some form of deceit “dajal” , we recite the first 10 verses of Surah Al-Kahf to them. We commit to reading Surah Al-Kahf in its entirety every Friday or Friday night. So how do we confront him? With piety and the Quran, and by returning to God and the Prophet Muhammad, peace be upon him. Clear ?
+
+I will not tell you to pack your bags and go to a certain country to escape dajjal. Wherever you go, you will face him. He will tread on every piece of land except two places: Mecca and Medina. Even if you go and stay in the heart of the Kaaba or the heart of the Prophet’s mosque “rawda sharefa”, when dajjal stands on their outskirts and calls out, if you have any percentage of hypocrisy or distance from God in your heart, it is not him who enters, but you who will go out to meet and greet him. So, don't tire yourself by thinking you can escape him by being in a certain place, no.
+
+Conversely, Surah Al-Kahf, with God’s power and ability, will save you from him even if you are in a land of disbelief “kufr”. If you always intend to fortify and protect yourself from him by reciting Surah Al-Kahf weekly and the first 10 verses of Surah Al-Kahf whenever you suspect someone, then you are following the Prophet’s hadith, peace be upon him. But if you neglect this matter and this weapon and just go to a place that you know is pure and where dajjal does not tread and stay there, you will indeed be liberated, but you must add what we said, which is the Surah and the verses. Because if you don't add the Surah and the verses, and you remain in hypocrisy, knowing the truth and not applying it, showing a face to the truth and another to disbelief "kufr” , then dajjal will draw you out with his voice, even if you are in the heart of the Kaaba, and that will be the end of the matter. 
+Understood?
+
+Bismillah.
+
