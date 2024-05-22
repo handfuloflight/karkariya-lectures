@@ -133,3 +133,57 @@ Understood?
 
 Bismillah.
 
+
+
+&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&
+
+
+
+**Question**
+
+I had a vision “dream”, Sidi Sheikh. I saw it in 2021 while reading the Wird for blessing before the pact “baya'a”. I saw myself in the Karkariya zawiya, specifically in the kitchen, and it was dark. I was crying intensely, saying that I would not become a disciple of the Sheikh. Then, one of the disciples came to me and said that the Sheikh was waiting for me or wanted to meet me. So, I went with the disciple to meet you, Sidi Sheikh, and you told me to wait a bit because someone had come before me. I waited for about half an hour, and then you came to me, Sidi Sheikh, and placed your right hand on my eyes. I saw the universe filled with lights, and then something like a circular cancer growth came out of my back. You placed your thumb on this cancer, and demons and evil spirits came out of it. I woke up from the vision feeling happy and at peace.
+
+**Answer**
+
+So, alhamdulillah for the blessing of His light and the blessing of Islam, and that is enough of a blessing. He was a polytheist “mushrik”, and when we say he was a polytheist or a disbeliever or non-Muslim, we mean all those who disbelieved in what the Prophet Muhammad, peace be upon him brought and what Allah Almighty sent down, yet they still have a trace of Islam in their hearts to testify against them on the Day of Judgment. Allah created them on the natural disposition (fitra) of Islam. This fitra remains present, but as we always say, it is the parents who make their child Jewish or Christian based on what they follow and practice in their lives. They formed in him this cancer and this tyrant “taghout”. Clear?
+
+He says that in 2021, he took the blessing Wird. He indeed took it, but not with the intention of seeking blessing; rather, he heard the disciples talking about the light of Allah, and his curiosity was piqued. But Allah, as He guides whom He wills, made him instead of just reading or listening to what the brothers were saying, he became better than the brothers because he searched for the connecting thread, which is the Wird, and used it, unlike some. Because reading about something is one thing, but searching for the way that led someone to that rank and organizing your own connection with your Lord to reach what the speaker reached? That is another thing; this is actual application. So, this is what he did.
+
+When he began to enter the circle of Dhikr, Allah did not leave him. If Allah, the Exalted, had left him, He would not have sent him this connection in the first place, which was the cause of bringing him from darkness into light. Clear? So he read this Wird and found himself in closeness, and at the same time, he was close because he was in the zawiya and in the kitchen, but still not a Muslim, of course, and his thoughts were still controlling him, so he needed a certain period. Clear?
+
+This certain period, according to calculation, was just half an hour, as the Prophet Muhammad, peace be upon him, said: "I and the Hour have been sent like these two" (raising his index and middle fingers). Meaning, half of his life that passed in darkness, if he has the coming half, we pray that it will be light. So, the first half of his life was settled in the kitchen, and what is always in the kitchen? Food and drink only. Without the blessing of Islam, a human is animalistic—food, drink, and mating are his goals. Clear?
+
+So, as long as he was at that time focused only on food, earning money, and food, we told him to wait half an hour. This half hour by a hidden calculation, not a physical one, constituted this period until 2024. Clear? So, when he continued reading, he found that this dark veil below was a cancer, and always in our time, cancer is like the plague in past times, and the plague is a prick or tingle from the jinn. 
+Clear?
+
+Even now, what is the cause of cancer? Others of this era attribute the main cause of cancer to food; it is not from food, it is from darkness. This pricking or tingling done by Jinn “shaytan”,if prolonged in yourself for long time like major sins, drinking, adultery and so on, it begins to grow and expand in the body until it becomes cancer as it is now. 
+That's it.
+ Clear?
+
+So this cancer formed and came out of his back, and the Sheikh placed his thumb on his back. The thumb means we seal with it “khatm” , that's it. It substitutes for a signature or signing nowadays, meaning the signing with fingers is what is still valid and remains valid in most countries today. Even in our countries now, the signature alone is not sufficient in important official transactions; you must stamp with your thumb to be identified.
+
+So The Sheikh's stamp on what he accumulated since his birth from polytheism and disbelief purifies him by Allah Almighty and brings him from darkness to light. This is the Prophet Muhammad said, peace be upon him, and you always know it: "I have left among you the Book of Allah and my family (Ahlul Bayt)" and the other hadith: "Whoever shakes hands with me or shakes hands with the one who shakes hands with me, the fire will not touch him." And all these are authentic hadiths established by the Prophet, peace be upon him. They are not approved except for those who oppose of ahlul albait or oppose the Sunnah of the Prophet, peace be upon him.
+
+And now, alhamdulillah, he has declared his Islam and he knows his rights and responsibilities, and things are becoming clearer for him more and more. We pray to Allah Almighty to purify us and him completely so that he becomes pleasing to Allah and the Prophet, peace be upon him, in this world and the Hereafter, 
+and that's it.
+
+We didn't do anything; even the sentence "I met with the Sheikh," he thinks meeting the Sheikh is when he traveled and came to see me , no. Everyone who came, we met in past times and in earlier centuries. Allah Almighty now brought the bodies, and the spirits came together before the bodies. Now the coming together of the bodies is merely to affirm what the spirits came together for in the past, to bring it down to the tangible “a'alam alhiss” so that our souls can be at ease and say indeed we visited, we took, we got closer, and so on.
+whether in closeness or in distance and separation. Even those who opposed the sainthood opposed it in the past, even those who hypocritically treated the sainthood hypocritically did so in the past. Allah brought them now to affirm the matter, and it becomes a testimony for or against them.
+
+That is why we are at ease; you came, took the pact, and broke it, or you came, took the pact, and remained steadfast; it is the same to us because we know we did nothing, it is Allah who brought you. As long as Allah wanted good for you, He kept you firm on His light, light upon light. Allah guides to His light whom He wills. Allah wanted to guide you to His light, so He brought you to a cause and a gate of light, and that's it.
+
+Of course, if you are not from this group and are from the other group who want to extinguish the light of Allah with their mouths, meaning they know this light and want to extinguish it with falsehoods, temptations, what displeases Allah and His Messenger and His saint , peace be upon them all, this is it.
+
+And Allah will perfecte his light “wallah motim norih” (surat alsaf 9)
+So, we are calm and comfortable; whether you do or not do, it doesn't add or subtract anything from the container. We are not overjoyed by your coming, nor are we sad at your departure; the matter is the same to us.
+
+You set up a test, meaning you want to test yourself, so Allah sends you a Prophet if you are in the time of the Prophets, or a Messenger if you are in the time of the Messengers, or a Saint if you are in the time of the Sainthood, or an Imam if you are in the time of the Imams, or a scholar if you are in the time of the scholars, so that he is a witness for or against you. And as all the righteous say: "Scholars were sent as a witnesses against the nation, and Saints were sent as a witnesses against the scholars," even they need someone to be a witness against them.
+That's it.
+
+That is why you always find scholars in conflict with Saints, except those whom the Lord has mercy on, so they can testify against them on the Day of Judgment. 
+That's it.
+
+Because he comes with an interpretation of a hadith or a verse in a way he imagines to be scientific and comprehensive, so a Saint is sent to confound him in this matter, as was sent to Moses, peace be upon him. Moses, was a scholar above scholars, a Prophet and a Messenger and one of the steadfast “ou'lu ala'azm”, and a righteous servant was sent to him “al-khidir” . Clear? So that he is a proof for or against him. 
+That's it.
+
+Bismillah.
