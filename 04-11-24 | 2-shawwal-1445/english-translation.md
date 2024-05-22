@@ -187,3 +187,45 @@ Because he comes with an interpretation of a hadith or a verse in a way he imagi
 That's it.
 
 Bismillah.
+
+
+&&&&&&&&&&&&&&&&&&&&&&&
+
+
+
+**Question**
+
+The disciple's voice is unclear, but his question is about the dhikr "There is no power and no strength except with Allah" (La hawla wa la quwwata illa billah)
+
+**Answer**
+
+The dhikr "There is no power and no strength except with Allah" (La hawla wa la quwwata illa billah) is fully understood only by those who have been chosen by their entirety to be in the presence of Allah. This is a high rank that only specialists can comprehend. As for us, when we recite "La hawla wa la quwwata illa billah," it is as if we are freeing a slave to get closer to Allah, similar to freeing one or ten slaves. 
+Clear?
+
+So, we start with this. All the dhikr  is a means to get closer to Allah. Some do the dhikr for a reward, some do the dhikr for purification and cleansing of the impurities that a person has inflicted on himself through sins, and some do the dhikr hoping that the distance will be shortened.
+Understand? 
+They want to leave behind the lower self that has exhausted them in their life. Allah Almighty says in Surah Al-Kahf: "And remember your Lord when you forget" (18:24), it means if you forget yourself, then make dhikr for Allah. Understand?
+And that's when you make dhikr you will do it with a peaceful self “nafs mutma'ena” , the self has returned to the Lord well-pleased and pleasing to Him “nafs radiya mardiya”.
+This is how it is.
+
+And then we color the dhikr, like a fruit selection, so that the disciple does not get bored. Yesterday was the Day of Tashreeq, a day of Eid. Eid al-Fitr has one day of Tashreeq, and Eid al-Adha has three days of Tashreeq. During these days, it is a sunnah to eat, drink, and engage in dhikr. Food and drink everyone knows it. Everyone prepared their food and drink even before Eid, filling their kitchens with a variety of foods that satisfy the lower self. And We, Alhamdulillah, wanted to dedicate this day to Takbeer (Allahu Akbar), the sunnah of the Prophet, peace be upon him, and to Tahleel (La ilaha illa Allah) and Tasbeeh (Subhan Allah).
+
+So, after every prayer, we reminded ourselves and those around us with Takbeer, Tahleel, and Tahmeed (Alhamdulillah), and then started with Tasbeeh.
+To avoid boredom, and some of you instead of making dhikr he starts to calculate how much we're gonna do ? How much we're  gonna do ? Is it 1000 ? Is it 10,000 ?
+
+The Prophet Muhammed peace be upon him, established the number 100 in many hadiths, so we followed the 100 with variety of Dhikr. The goal is to remain seated between Asr and Maghrib, the best times of the day, either in lecture “mudhakara” or in dhikr.
+
+During Ramadan, we spent every day from Asr to Maghrib in mudakara. We dedicated Ramadan to study for those who came here in the zawiya, and we cut our connection with those who were not here.
+That's it.
+So it becomes like charging and it serves as a comprehensive analysis for those who are present, leaving behind their busy lives and families to be here. 
+So that's why on the day of Eid, we chose not to do a lecture “mudakara” but to engage in dhikr for the whole day. It was a special day with a unique blessing felt only by those who love obedience and remembrance of Allah. Understand? 
+That's it.
+
+We varied the dhikr as much as possible until the time for Maghrib prayer, making the most of the time from Asr to Maghrib, speaking only in Quran and dhikr, so that the soul does not get bored. We do not want to stick to one dhikr and repeat it all day, although we could. The disciple might get bored, so we vary it: 100 of Tahleel, 100 of Tahmeed, 100 of Allah's names, and so on. This benefits the disciple, purifies him, and brings fruit to his soul. There are those who have experienced countless blessings, and some have seen what eyes have not seen, in that meeting. Understand? Some have cleansed themselves from impurities. There are more days to come, insha'Allah, where we will do lectures “mudhakara” and discuss what's your right and duties.
+
+After the Fajr prayer, I heard you doing Takbeer, but Eid was over. Today is the second day and no longer Eid; it is a regular day. These are the days of Shawwal.
+
+completing Ramadan because Ramadan is 30 days, meaning to complete the fasting month by adding six days of Shawwal, which you should be fasting like the blessed month of Ramadan.
+
+Bismillah.
+
