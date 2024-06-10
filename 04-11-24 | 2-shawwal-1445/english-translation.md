@@ -229,3 +229,43 @@ completing Ramadan because Ramadan is 30 days, meaning to complete the fasting m
 
 Bismillah.
 
+
+
+&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&
+
+
+
+Note to understand the answer better 
+
+1- Mulk : physical world
+2- Malakoot : spiritual realm
+3- jabaroot : invincibility realm
+
+**Question**
+
+Sidi Sheikh, I had a vision where I was in spiritual retreat "khulwa", and I was mentioning the name of Sidi al-Hassan a lot without using the title of "Sidi." You appeared in the vision and were pleased with this mentioning, approving the dhikr of this name.
+
+
+**Answer**
+
+First, mention the name of the Sheikh, It is not permissible for the disciple to mention the name of the Sheikh or any Sheikh in any way they please. You mention it as if you found it in a prayer or found it in your supplication, you remember his name and pray for him, all of this is good and blessed. But to make his name a wird! This is not permissible; only God's name is mentioned as dhikr, "and the mention of Allah is greater" surat al-ankboot 45 , understood? We say Sidi so-and-so, Sidi so-and-so once if the tongue utters it, and of course, he prayed or sought closeness or took him as an intermediary between him and God, there is nothing but good as we said to the brother before , you mentioned his virtues, you mentioned his affairs. But to mention the name like this Al-Hassan, Al-Hassan or Hassan, Hassan or any name , this is not permissible, clear? Except in a specific case if the Sheikh asked you to do this, and some rely and say I was visited by the Sheikh either in a dream or in a vision and he commanded me to mention a  name that is maybe unclear , or a name of one of the Sheikhs, I do not do it and you do not have the right! Except if you contacted him physically and he permitted you in the matter physically, that's it. But I sit and make dhikr in my retreat, and an order appeared to me, or I heard an order, or I heard a name, or I heard any order, and you say that's it, as long as the Sheikh came and spoke to me, I have to implement this order, no! As long as I know that I am in the time of the Sheikh, and the Sheikh is alive, and with me in this world, I can ask him directly. If he tells me no, then no, because some matters come to you in manifestations and you are tested in them. So, be careful. It is not that the Sheikh came to me in a dream, or I heard the Sheikh, no, I am still existing, alive, I have not died. If I died and you can not meet the Sheikh and the Sheikh came to you in a dream and told you to do it, do it and rely on your Lord, in this case the Sheikh is not with you in this world "mulk", he is in the kingdom of God "malakoot", so deal with him in the kingdom of God "malakoot". But now he is with you in this world "mulk", that's it, deal with him in this world "mulk" , and this is the sunnah of the Prophet peace be upon him.
+
+The Prophet, peace be upon him, meeting with our master Gabriel, peace be upon him, was in mulk and malakoot and jabaroot. When our master Gabriel, peace be upon him, came to the Prophet, peace be upon him, and told him to read, this was in the mulk , not in the malakoot, understood? When he told him to "read in the name of your Lord who created", he came to him in the mulk , not in the malakoot. Why did our master Gabriel, peace be upon him, not remain in the malakoot? To confirm the matter to him in the mulk, clear? And go read the verse "Read in the name of your Lord who created" in the mulk.
+If our Prophet , peace be upon him, had seen our master Gabriel, peace be upon him, in the malakoot only, he would not have taken from him , like at the beginning before the message came to the Prophet. He would consult our mother Khadija, may God be pleased with her, and say to her I saw and saw.
+
+Even our mother Khadija, peace be upon her, once when he described the scene to her, she removed the veil from her head and showed her hair and said to him do you still see what you were seeing? Or what you're telling me? He said no, she said if so, he is an angel. He did not follow his order until Allah revealed him to Prophet Muhammad and showed him in the mulk, in the cave of Hira and on the mountain of light, and told him to "Read". So the interaction remained in the mulk, even the Prophet, peace be upon him, spoke and saw him as you see yourself and those around you, and shook hands with him and embraced him so that he would know that this matter is sensory, not a scene or image, clear? Confirmation, confirmation for the Prophet, peace be upon him.
+
+As for the prophets and messengers, the Prophet saw them in the malakoot of the Merciful, so when he ascended to the first heaven, he greeted Adam and Adam returned the greeting to him, this is it. And he greeted the second Prophet and returned the greeting, so what is the meaning here? The Prophet became malakoot and met those who are in the malakoot and remained with them, taking wird from the malakoot. So He bring us the description of the malakoot to us in the mulk, by his noble ascension "mi'raj", is this clear or not clear? This is it.
+
+And when he came in consultation with Moses in the malakoot of the Merciful about the number of prayers in a day, and Moses answered him, peace be upon him, "the phone of one of the disciples rang while Sidi Sheikh was speaking", turn off the phone and put it on silent in the zawiya , for the love of the Prophet put the phone on silent! When you come to the zawiya turn off the phone or put it on silent, this is it. Do not play music for us, the Wahhabis tell you that music is forbidden, why do you do this! leave it forbidden better than making it halal and causing us problems, it remains forbidden and we are comfortable, this is it. You pray and sing, you perform the wird and sing, you sit and sing, do not tempt us!
+When we are with you in a spiritual manifestation let us be in that manifestation, you bring us down from that manifestation and bring us back thousands of years!
+Let us live with you in this spiritual breeze in this time, jazakom allah khair, let us here respect each other, and this thing I say to you applies to myself before I say it to you, I myself have my phone on silent, since the day I started the Tariqa , and my phone is on silent! And it is still on silent, and whoever says he once heard my phone ring, let him confront me, never.
+Imitate the Sheikh if you want to Imitate, if you do not want to? Relieve us and imitate these hours that you are with us! If you want to use the phone and play with it, go and play with it, it is your business! But you and your phone only, do not disturb the whole group!
+This is it.
+
+So The ascension of the Prophet, peace be upon him, and his meeting with Moses, peace be upon him, resulted in a reduction in number of prayers, not from Moses, but from the Lord of Glory, Moses was as if telling Prophet Muhammad, peace be upon him, to return to God and ask for reduction, he's not telling him and ordering him to perform five prayers instead of fifty. And then Prophet Muhammad came down and told us to do five prayers No! , Mohammed peace be upon him, returned to the Sidra Al-Muntaha and made sujood , praying to the Lord of Glory, and Allah reduced it for him. So the matter here is between him and Allah. The notification or alert came in the malakoot, and the Prophet peace be upon him, did not follow it until he returned to the Lord.
+Therefore, if any of the malakoot matter happens to you , Until you return to the one who brought you to the malakoot of the Merciful. As long as the one who brought you to the malakoot of the Merciful is in the mulk , and you want to apply the order in the mulk, then return to him in the mulk. If you saw him in the malakoot of the Merciful or heard him in the malakoot of the Merciful, leave it as you heard it and leave it as you saw it, but do not apply it in the mulk unless you return to the owner of the mulk "Sidi Sheikh" and ask him about this matter. If he permits you this matter, then you are authorized in it. If he does not permit you this matter, forget the seeing! Because if you return to him, he will explain to you what it actually means, clear or not clear?
+That's it.
+
+Bismillah.
+
