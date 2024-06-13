@@ -269,3 +269,34 @@ That's it.
 
 Bismillah.
 
+
+
+
+&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&
+
+
+
+**Question:**
+My friend is a former Christian who is now a Muslim. He practices the 'wird' but has not yet taken the pact 'bay'ah'. He is overwhelmed with feelings of guilt due to his past actions and sins. How can he overcome this feeling?
+
+**Answer:**
+He will overcome it. Every person has passed through various dark and lower states in different times of their life. Now, God has willed good for him and granted him a clear opening, allowing him to engage in the wird. It's not just about the 'wird'; it's about what the 'wird' is. It includes seeking forgiveness 'Astaghfirullah' , praying upon the Prophet (peace be upon him), the word of monotheism, and gratitude. This is a blessing and one of the best blessings. The 'wird' will fulfill its purpose with him. As long as he maintains it, it will pull him out of the darkness of his lower self and his distance from God , that's it.
+
+For all those who have converted, I don't want to create new situations in my time just to please someone. I treat all disbelievers and polytheists as the Prophet (peace be upon him) did at the beginning of Islam. They don't understand the religion, so it's not for one to judge them as disbelievers. Instead, I take a lenient approach. There have been times when I visited someone who declared the shahada (declaration of faith) in a house filled with alcohol bottles. It didn’t matter to me because the greatness lies in him declaring his faith and entering Islam.
+
+It's better for him to be judged for major sins than remain a disbeliever, but once he is within the circle of monotheism, the shahada itself will take care of everything. Once he declares the shahada, the process of purification begins, gradually pulling him out of darkness. When the tongue utters the word of monotheism 'la ilaha illa Allah' , it becomes moist with it. This is what we witness. We don't witness a disbeliever for having alcohol in their house. If he were a Muslim, then we would take necessary actions and scold him , but a disbeliever doesn't know any better. I can't even discuss the matter with him and tell him to get the bottles out of the house , leave him to be , in the beginning there is no problem , But Now perform the Shahada, learn, perform ghusl first, and after the ghusl, perform wudu, then the Shahada. Then we will guide you not in the religion but in the pillar of the religion which is the prayer , how to pray. Like this, clear? You will pray in this manner, we will teach you the method of prayer and how to pray, then we will make you love the prayer so that it becomes a connection in your heart. After that, other things will come gradually, until, insha'Allah , you become capable of teaching the religion to others. Clear? That's it.
+
+Regarding his feelings of guilt, why is he feeling guilty? Perhaps he has someone that keeps reminding him of his past disbelief or sins. However, Islam erases what came before it. The matter is over. Even His wealth becomes lawful and halal for him even if it was amassed from unlawful means, nothing is upon him. So who should rebuke themselves? Us, not him. We are the ones who should rebuke ourselves, asking, “From where did we get it ? and on what did we spend it?” This is it. Whether your wealth is lawful or unlawful? But as for him, he is like a newborn after the testimony of faith, and other matters we believe God will hold him accountable for, such as shortcomings or things he is unaware of, he is still in the process of learning, still in the early stages in the circle of education.
+
+And then We should treat them as such, following the Prophet Muhammad peace be upon him guidance to "teach them seven years and then accompany them for seven years." They are like a newborn, and we should deal with them accordingly.
+
+Therefore, our first step is to endear the religion to them. We tell them to perform the ghusl with the intention of purifying themselves from past darkness and obliviousness. We teach them the correct pronunciation and meaning of the shahada. When they pray with us, we don’t measure their exactness, do you understand? He follows the Imam in the movements, then we teach him Surah Al-Fatiha and Surah Al-Ikhlas, and gradually he will understand the process.
+
+When does guilt come in? It's when he hears others saying to him, 'You don't know this' or 'You're like this and that'. If they were to foster love for religion in him and say, 'You are now experiencing a new birth, you have nothing to worry about. God has brought you out of darkness into the light of the Lord, you are pure upon purity.' At that point, he will develop a love for religion and eagerly seek to learn.
+
+Those who declared the shahada here and stayed with us for just a month received blessings from God. They learned how to pray, understood their obligations, took the bay’ah, received divine light, and left happily. They remained within the fold of Islam, they didn't get out of islam! I didn't meet them someday and saw them wearing crosses on their necks. No, they remained Muslims and got married, held 'aqiqah' (sacrifice sheep for a newborn), and raised families. Some of them are now learning Arabic to understand the religion better, not learning Arabic for the visa, but for him to learn about the religion, he strives and endeavors to understand the culture, customs, and doctrines. However, if he has just embraced Islam and immediately begins to receive teachings on different religious doctrines, it might overwhelm him and he may abandon them, preferring to follow his own path. He might say to you, 'you be Muslim I don't want to anymore.' You say one thing, someone else says another, and another says something else. So, after taking the Shahada, leave him in the circle of the Shahada, comfortable and content. He loves the Shahada, gradually introduce him to the circle of prayer until he loves it, cherishes it, and eventually, step by step, he will turn towards all that is good.
+
+Bismillah.
+
+
+&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&
