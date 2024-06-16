@@ -300,3 +300,19 @@ Bismillah.
 
 
 &&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&
+
+
+
+**Question:**
+*The voice is weak and not clear, but this is approximately the question:*
+Sidi Sheikh, regarding the "remaining righteous deeds" (al-baqiyat al-salihat), is it the saying "All greetings, prayers, and good things are for Allah" (the tashahhud)
+or is it the saying "Subhan Allah, Alhamdulillah, La ilaha illallah, and Allahu Akbar"?
+
+**Answer:**
+The phrase "All greetings, prayers, and good things are for Allah'' (the Tashahhud) is a specific interaction between the Prophet Muhammad (peace be upon him) and Allah the Almighty. It translates to "You are as You have praised Yourself." This is the meaning of "All greetings and good things are for Allah." It is not a series of actions but rather the fruit of the final act, which is why we recite it after completing the prayer. After performing the standing, bowing, and prostration (sujood) , we then say the Tashahhud. We don't begin with the Takbir (opening declaration of Allah’s greatness) and then start with the Tashahhud, understood? It is the fruit of the act. When do you perform the Tashahhud? After rising from sujood, right? This means after you have prostrated in the presence of Allah and realized His closeness , closer to you than yourself and your jugular vein , At that moment, because He is your Qibla (direction of prayer) and the closest place to the servant in the presence of the Almighty is the place of sujood. When you see this closeness and you are amazed by it, you understand? And you understand the secret of this closeness, you then acknowledge this closeness and wish to convey the connection you felt. So you say "All greetings are for Allah." You offer the greeting to Allah, understanding that you didn't do anything but it is He 'Allah' who has purified and chosen you. The good things are for Allah because you realize there is not an iota of distance or deviation. You then start with the prayers, acknowledging who the people of closeness are in this position? They are the Prophet Muhammad and his family. You perform the prayers upon the chosen Prophet Muhammad (peace be upon him) and his family. After finishing, you remember the things that kept you away from Allah’s presence, so you seek refuge from them—such as the torment of the grave, the Antichrist (Dajjal), and the rebellion of the self. The "remaining righteous deeds" (al-baqiyat al-salihat) are what remain and are the planting of paradise. Understood? But the Tashahhud is the fruit of annihilation in the presence of Allah. Clear? That’s it.
+
+Bismillah.
+
+
+
+&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&
